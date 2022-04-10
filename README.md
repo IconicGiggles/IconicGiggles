@@ -2,7 +2,7 @@
 - 👀 I’m interested in Video Games, Anime, & volleyball
 - 🌱 I’m currently learning Japanese, German, & Dutch
 - 💞️ I’m looking to collaborate on Anything really
-- 📫 How to reach me IconicGiggles@gmail.com
+- 📫 How to reach me Please don't-
 
 <!---
 IconicGiggles/IconicGiggles is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
